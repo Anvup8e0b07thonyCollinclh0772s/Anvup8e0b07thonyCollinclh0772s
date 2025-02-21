@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Anvup8e0b07thonyCollinclh0772s
+# Hi there! 👋 I'm a Gay
 
 🏹 🎨 Passionate about data science 🏹 🎨
 
